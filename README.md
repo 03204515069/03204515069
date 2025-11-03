@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @03204515069
+- 👋 Hi, I’m @professor
 - 👀 I’m interested in coding and programming and also in hacking 
 - 🌱 I’m currently learning free lancing, digital marketing and c programming.
 - 💞️ I’m looking to collaborate on ...
